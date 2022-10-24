@@ -1,3 +1,3 @@
 # prodigy-hacks
 they all work
-give my co some love his git is -
+if you have any ?´s or req email me at aylabean84@gmail.com
